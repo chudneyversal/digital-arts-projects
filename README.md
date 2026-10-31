@@ -1,1 +1,1 @@
-# digital-arts-porjects
+# digital-arts-projects
